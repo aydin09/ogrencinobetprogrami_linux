@@ -1,0 +1,1 @@
+# ogrencinobetprogrami_linux
